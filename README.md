@@ -8,7 +8,7 @@
 
 📫 How to reach me:
 - GitHub: [ayushxpal](https://github.com/ayushxpal)
-- LinkedIn: [Ayush Pal](https://www.linkedin.com/in/ayush-pal-678b50289?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
+- LinkedIn: [Ayush Pal](https://www.linkedin.com/in/ayushxpal/)
 - Twitter: [ayushistyping](twitter.com/ayushistyping)
 - Instagram: [ayushxpal](instagram.com/ayushxpal)
 - Email: palayushksp@gmail.com
